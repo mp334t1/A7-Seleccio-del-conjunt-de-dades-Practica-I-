@@ -1,0 +1,1 @@
+# A7-Seleccio-del-conjunt-de-dades-Practica-I-
